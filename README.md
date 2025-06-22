@@ -1,40 +1,5 @@
-<h1 align="center">˖°𓇼🌊⋆🐚🫧                                                        ![بدون اسم86_20250622213827](https://github.com/user-attachments/assets/09c3dfd5-47b4-49ba-acec-3b7d2f51fccb)
-
-
-
-✧  She / They !!  ; Meow! !
-</p>
-                                                                                                           
-<p align="center">
-✦ ! All time favourites(RANKED): Aventurine, Ajaw, Focalors, Dottore, Beidou,busy / Tighnari, Kinich, Scaramouche, Ratio, Xiao!
-                                                                                             <p align="center">
-──── ✩ ────
-</p>
-
-<p align="center">  
-Links!
-</p>
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎‎ ‎ ‎ ([(https://rentry.co/furinalovrr)])                                                  (  ✩  ((https://nnxxyod.straw.page))] 𓇼  
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎![IMG_0410](https://github.com/user-attachments/assets/d3247641-a6bc-4373-b8bd-a0f20dab18c1)
- ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ ‎ ‎  ‎  ‎ ‎‎ ‎ ‎  ‎‎ ‎ ‎ ‎  
-<p align="center">
-──── ✦ ────
-</p>
-
-
- ![image](https://github.com/user-attachments/assets/9878810f-87da-4ef4-9dfc-2c4893eeaaab)
-![image](https://github.com/user-attachments/assets/cc870f81-b17a-47f7-ade6-44e6fb36be86)
-
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎‎ 
-
-![image](https://github.com/user-attachments/assets/832781fc-b2bb-42a1-a106-62d35becb0cd)
-‎  ‎  ‎ ‎ ‎ ‎ ‎‎
-                                                                                                                                                                                             ![image](https://github.com/user-attachments/assets/62daaf37-40f9-46a9-b03c-68efc6bb2ed6)
-                                                                                                                                                                                                                                                                             You give so much of yourself to the things and people you love, but in the process, you start to lose who you are.
-You've gotten so used to pretending and putting on a different persona that you might not even know what youre supposed to feel anymore. It's like you're constantly performing, not just your emotions, but your whole identity.
-IF you relate to Furina, you re probably struggling to avoid making mistakes and often fake your confidence to get by You secretly battle with loneliness but keep it all inside. never opening up to anyone. You try to appear strong and untouchable, fiercely protecting the image you present to others. Jeep down, you deal with serious self esteem issues and are deeply concerned with how people see you.
-You find it hard to express your feelings of hopelessness and end up bottling everything up. Remember that you are worthy of love just as you are, and someday, someone will value you for your true self.
-  ![image](https://github.com/user-attachments/assets/7ae693df-0989-46b0-88b8-391c99529c13)
-                                                                                                                   ![Image](https://github.com/user-attachments/assets/d5fd636f-e7be-491f-8d33-a2e3ba2ace96)
- 
+![بدون اسم86_20250622213827](https://github.com/user-attachments/assets/cfe9716a-0549-472c-ba2c-66d33db60e7b)
+Happy New Year! I want to thank you for your help. Everyone in Natlan is grateful from the bottom of our hearts.
+The road ahead is a long one, but I'm certain we can all move forward toward our goals.
+What do you wish for in the New Year? If you're still undecided, treat this card as a
+"Wish Token." Find me once you've made up your mind and redeem it personally.                                                                                                                       ![IMG_0551](https://github.com/user-attachments/assets/399027d5-9c19-4bb5-8113-7abe0c30630e)
