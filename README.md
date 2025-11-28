@@ -2,4 +2,5 @@
 <p align="center"> ♡  <a href="https://github.com/walkingdeathtrap">@walkingdeathtrap</a> 
                                                                                                    
 <img width="735" height="683" alt="بدون اسم230_20251128012606" src="https://github.com/user-attachments/assets/7102224c-caa5-4f74-ae05-5450b6ce47ab" />
-                                                                                              [discord](https://discord.gg/95c3NxNBa)
+                                                                                              
+[discord](https://discord.gg/95c3NxNBa)
