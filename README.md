@@ -14,3 +14,7 @@ The daughter of Lucifer Morningstar and the estranged queen of Hell, Lilith, Cha
 
 In "Curtain Call", after the defeat of Vox and the fall of his attempted rebellion, Charlie, with the help of her friends, managed to demonstrate the possibility of redemption with the first redeemed Sir Pentious, getting numerous sinners to stay at the Hotel to continue achieving redemption.                                       <img width="657" height="241" alt="بدون اسم248_20251202180938" src="https://github.com/user-attachments/assets/9892a249-0d70-4620-b6f1-108743aa529c" />
  
+
+
+https://github.com/user-attachments/assets/858b09d2-cdd0-4b3f-8ad0-167cd962e1ed
+
