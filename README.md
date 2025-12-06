@@ -5,14 +5,35 @@
                                                                                               
 [discord](https://discord.gg/95c3NxNBa). [Straw page 🌹](https://charlie738.straw.page/)
                                                       <img width="657" height="241" alt="بدون اسم248_20251202180938" src="https://github.com/user-attachments/assets/b5873be6-a2c7-4748-a95b-2446ae370302" />
-                                              Overview History Relationships Quotes Gallery
-"We lost so many souls, and it breaks my heart to see my people being slaughtered every year. No one is even given a chance! I can't stand idly by while the place I live is subjected to such violence! So, I've been thinking: Isn't there a more humane way to hinder overpopulation here in Hell? Perhaps we can create an alternative way to change souls through... redemption? Well, I think yes! So, that's what this project aims to achieve! Ladies and gentlemen, I'm opening the first of its kind! A hotel that rehabilitates sinners!"
-―Charlie's pitch for the hotel, Hazbin Hotel pilot
-Charlotte Morningstar, more commonly known as Charlie, is the Hellborn princess of Hell, the founder of the Happy Hotel, and the main protagonist of Hazbin Hotel.
+                                              <p align="center">$\color{#D5C8C5}{\textsf{𐔌   .  ⋮ all links  .ᐟ  ֹ   ₊ ꒱ ➜}}$<a href="
+![](https://i.postimg.cc/k5RmXjGD/pink1.gif)
+="100" height="100" alt="image" src="https://github.com/user-attachments/assets/f84399d4-849c-420f-b82b-232b25cbe890" 
+     "></a> 
 
-The daughter of Lucifer Morningstar and the estranged queen of Hell, Lilith, Charlie wants to do right by her kingdom and find a way to redeem Sinners into Heaven through rehabilitation at the Hazbin Hotel.[15]
 
-In "Curtain Call", after the defeat of Vox and the fall of his attempted rebellion, Charlie, with the help of her friends, managed to demonstrate the possibility of redemption with the first redeemed Sir Pentious, getting numerous sinners to stay at the Hotel to continue achieving redemption.                                       <img width="657" height="241" alt="بدون اسم248_20251202180938" src="https://github.com/user-attachments/assets/9892a249-0d70-4620-b6f1-108743aa529c" />
+<div align="center">
+<table border="3">
+     <tr>
+       <td>
+         <br>
+         ${\textsf{\color{#f2e1dc} Charlie Morningstar!}}$ 
+<p align="center"> <kbd>$\color{#e3d2cf}{\textsf{Hello!!}}$<br> <br>$\color{#D5C8C5}{\textsf{tengo plena consciencia de que 1K o poco más es probablemente algo mínimo (no lo sé) pero yo quise celebrarlo y agradecerles a todos por seguirme.
+cuando comencé en tumblr no tenía expectativas tan altas y he alcanzado esa cantidad en un mes (o menos), lo cual en mi opinión me parece algo digno de celebrar !!}}$<br><br>$\color{#D5C8C5}{\textsf{whispers are always apppreciated (i might be late at reading them) unless i have the following in my name char :}}$<br>
+<br><br>$\color{#d1bdb8}{\textsf{〰️= dniuid,➰ = iwc/dniuf,〰️ = agereg, or🎀 = asleep}}$<br>
+<br><br>$\color{#c7b5b1}{\textsf{sin tanto blablabla espero que disfruten de esta carpeta de pngs que he hecho a lo largo de mi proceso aprendiendo a editar, es una pequeña recopilación de los que he usado, que aún uso y otros que simplemente están ahí. ૮₍´˶• . • ⑅ ₎ა}}$<br>
+<br><br>$\color{#b39d98}{\textsf{other symbols include :}}$<br>
+<br><br>$\color{#a18882}{\textsf{💫 = ontab, 🌜 = offtab, and 🎄 = holiday occasions.}}$<br>
+
+<div align="center">
+<table border="3">
+     <tr>
+          <td>
+               <br>  
+<p align="Center"> <kbd><img src="https://komarev.com/ghpvc/?username=anglwngs&style=plastic&label=Courtroom+Gallery&color=e3d2cf&abbreviated=true">
+<p align="center">$\color{#f2e1dc}{\textsf{↪ How many people have viewed this account}}$
+     <p align="Center"><kbd> $\color{#e3d2cf}{\textsf{thank you guys so much for 300 views and (almost) 40 followers, it means alot to me 𖹭}}$<br>
+ </p>
+.                                       <img width="657" height="241" alt="بدون اسم248_20251202180938" src="https://github.com/user-attachments/assets/9892a249-0d70-4620-b6f1-108743aa529c" />
  
 
 
