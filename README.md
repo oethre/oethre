@@ -37,5 +37,9 @@ cuando comencé en tumblr no tenía expectativas tan altas y he alcanzado esa ca
  
 
 
-https://github.com/user-attachments/assets/858b09d2-cdd0-4b3f-8ad0-167cd962e1ed
+
+
+
+
+https://github.com/user-attachments/assets/76a99ba4-dfac-44e3-bce9-9657b8d58f14
 
