@@ -6,7 +6,7 @@
 [discord](https://discord.gg/95c3NxNBa). [Straw page 🌹](https://charlie738.straw.page/)
                                                       <img width="657" height="241" alt="بدون اسم248_20251202180938" src="https://github.com/user-attachments/assets/b5873be6-a2c7-4748-a95b-2446ae370302" />
                                               <p align="center">$\color{#D5C8C5}{\textsf{𐔌   .  ⋮ all links  .ᐟ  ֹ   ₊ ꒱ ➜}}$<a href="
-![](https://i.postimg.cc/k5RmXjGD/pink1.gif)="100" height="100" alt="image" src=" 
+![](https://i.postimg.cc/k5RmXjGD/pink1.gif)=
      "></a> 
 
 
