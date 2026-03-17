@@ -23,8 +23,7 @@
          ${\textsf{\color{#f2e1dc} Charlie Morningstar!}}$ 
 <p align="center"> <br>$\color{#D5C8C5}{\textsf{whispers are always apppreciated (i might be late at reading them) unless i have the following in my name char :}}$<br>
 <br><br>$\color{#d1bdb8}{\textsf{〰️= dniuid,➰ = iwc/dniuf,〰️ = agereg, or🎀 = asleep}}$<br>
-<br><br>$\color{#c7b5b1}{\textsf{sin tanto blablabla espero que disfruten de esta carpeta de pngs que he hecho a lo largo de mi proceso aprendiendo a editar, es una pequeña recopilación de los que he usado, que aún uso y otros que simplemente están ahí. ૮₍´˶• . • ⑅ ₎ა}}$<br>
-  <br><br>$\color{#b39d98}{\textsf{other symbols include :}}$<br>
+<br><br>$\color{#c7b5b1}{\textsf
 
 <div align="center">
 <table border="3">
