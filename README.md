@@ -1,10 +1,15 @@
-![IMG_1031](https://github.com/user-attachments/assets/1d9efb7d-7e8d-4324-a79b-40ba25a5077c)
-<p align="center"> ♡  <a href="https://github.com/walkingdeathtrap">@walkingdeathtrap</a> 
-                                                                                                   <img width="735" height="736" alt="بدون اسم246_20251202180335" src="https://github.com/user-attachments/assets/71cf1890-32ae-4d03-b00d-ac6e4cc8bdf2" />
+![IMG_1031](https://github.com/user-attachments/assets/1d9efb7d-7e8d-4324-a79b-40ba25a5077c)<p align="center"> ♡  <a href="https://github.com/walkingdeathtrap">@walkingdeathtrap</a> 
+                                                                                                
+ <p align="center">
+   
+<img width=540 height=12 src="https://github.com/user-attachments/assets/0611cc28-b481-44a7-98dc-9ff53cb5c627"/>
 
                                                                                               
 [discord](https://discord.gg/95c3NxNBa). [Straw page 🌹](https://charlie738.straw.page/)
-                                                      <img width="657" height="241" alt="بدون اسم248_20251202180938" src="https://github.com/user-attachments/assets/b5873be6-a2c7-4748-a95b-2446ae370302" />
+                                                      <img width="657" height="241" 
+ <p align="center">
+   
+<img width=540 height=12 src="https://github.com/user-attachments/assets/0611cc28-b481-44a7-98dc-9ff53cb5c627"/>
                                               <p align="center">$\color{#D5C8C5}{\textsf{𐔌   .  ⋮ all links  .ᐟ  ֹ   ₊ ꒱ ➜}}$<a href="
 ![](https://i.postimg.cc/k5RmXjGD/pink1.gif)=
      "></a> 
@@ -32,7 +37,7 @@ cuando comencé en tumblr no tenía expectativas tan altas y he alcanzado esa ca
 <p align="center">$\color{#f2e1dc}{\textsf{↪ How many people have viewed this account}}$
      <p align="Center"><kbd> $\color{#e3d2cf}{\textsf{thank you guys so much for 300 views and (almost) 40 followers, it means alot to me 𖹭}}$<br>
  </p>
-.                                       <img width="657" height="241" alt="بدون اسم248_20251202180938" src="https://github.com/user-attachments/assets/9892a249-0d70-4620-b6f1-108743aa529c" />
+.                                       
  
 
 
