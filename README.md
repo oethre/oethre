@@ -21,7 +21,7 @@
        <td>
          <br>
          ${\textsf{\color{#f2e1dc} Charlie Morningstar!}}$ 
-<p align="center"> <br>$\color{#D5C8C5}{\textsf{whispers are always apppreciated (i might be late at reading them) unless i have the following in my name char  とか思うと:}}$<br>
+<p align="center"> <br>$\color{#D5C8C5}{\textsf{赤滝がなんがもこのあとちょっとだけ早くからお買い物バスが焼いたがその ♯ following in my name char  とか思うと:}}$<br>
 <br><br>$\color{#d1bdb8}{\textsf{〰️= dniuid,➰ = iwc/dniuf,〰️ = agereg, or🎀 = asleep}}$<br>
 
 
