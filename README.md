@@ -6,7 +6,7 @@
 
                                                                                               
 [discord](https://discord.gg/95c3NxNBa). [Straw page 🌹](https://charlie738.straw.page/)
-                                                      <img width="657" height="241" 
+                                                      
  <p align="center">
    
 <img width=540 height=12 src="https://github.com/user-attachments/assets/0611cc28-b481-44a7-98dc-9ff53cb5c627"/>
